@@ -2,3 +2,6 @@
 aha ok spoko
 
 edycja pliku
+
+salamaleco  
+
